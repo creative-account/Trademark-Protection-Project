@@ -1,1 +1,1 @@
-# Trademark-Protection-Project
+# みんなで商標権やぶろうプロジェクト
